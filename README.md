@@ -1,2 +1,2 @@
 # The-first-jobs
-learning and working in zzzznnnvv
+learning and working in z
